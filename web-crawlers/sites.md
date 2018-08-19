@@ -1,0 +1,4 @@
+- https://www.cbf.com.br/futebol-brasileiro/competicoes/campeonato-brasileiro-serie-a
+- https://www.dicionariodenomesproprios.com.br/
+- https://am.olx.com.br/
+- http://loterias.caixa.gov.br/wps/portal/loterias/landing/megasena/
